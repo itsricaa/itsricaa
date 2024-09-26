@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Erica !!
-- 👀 I’m interested in electrical energu conversion and sustainability in the auto industry. 
+- 👀 I’m interested in electrical energy conversion and sustainability in the auto industry. 
 - 🌱 I’m currently learning how to play the ukelele
 - 💞️ I’m looking to collaborate on research projects and interning. 
 - 📫 How to reach me: email -> ericadelmu@gmail.com
